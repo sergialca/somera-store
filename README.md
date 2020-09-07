@@ -1,3 +1,0 @@
-# somera-store
-
-dwad
